@@ -1,2 +1,0 @@
-# palz
-Baru blajarr:v
